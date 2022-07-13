@@ -1,1 +1,1 @@
-# Digital-Divide-with-A-Sociological-Data-Analysis
+# Digital-Divide with Sociological Data-Analysis
